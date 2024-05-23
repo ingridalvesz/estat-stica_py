@@ -1,0 +1,5 @@
+![image](https://github.com/ingridalvesz/estat-stica_py/assets/88692119/e2210ef3-96e7-430d-8f3f-41866db9cccf)
+![image](https://github.com/ingridalvesz/estat-stica_py/assets/88692119/29985a98-6390-4b8c-bc72-8a7e345bb9d6)
+![image](https://github.com/ingridalvesz/estat-stica_py/assets/88692119/df9b7a8c-3be1-4ea2-ac30-2d897ec86e35)
+![image](https://github.com/ingridalvesz/estat-stica_py/assets/88692119/5d0054db-d3f6-4e2b-8ad6-e20c45b378a4)
+![image](https://github.com/ingridalvesz/estat-stica_py/assets/88692119/dd4ad3f5-2aa7-4434-a233-d7bbff5b1787)
